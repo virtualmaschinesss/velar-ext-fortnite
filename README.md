@@ -3,5 +3,5 @@ Lqinnx is a retarded skid in the com. He scammed many people with different thin
 
 i will also poste his pasted mutante spoofer where he scams 
 join https://discord.gg/exploiterheaven
-![asdasdasd](https://github.com/user-attachments/assets/483884da-88a9-41a8-a06e-af3387bbcdde)
 ![image](https://github.com/user-attachments/assets/62ec30c7-1cbe-4cb0-bb28-3d679b484b9b)
+<img width="742" height="234" alt="zen_AkPBGn23ek" src="https://github.com/user-attachments/assets/f2a6b345-6f76-4db2-aae7-f01680d233c6" />
